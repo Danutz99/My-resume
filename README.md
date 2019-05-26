@@ -1,4 +1,3 @@
-# Resume
 # Mamaliga Paraschiv-Dan
 # Phone number:0751773982
 # Email:danmamaliga2@gmail.com
